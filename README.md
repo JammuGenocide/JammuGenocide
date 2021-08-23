@@ -6,6 +6,6 @@
 
 -->
 
-The Jammu genocide is project to collect and save the data, information, testimonies and media about Jammu Genocide.
+A project to collect and save the data, information, testimonies and media about Muslim Jammu genocide carried out by the Dogra state in 1947 in J&K.
 
 ![Times of London](https://github.com/JammuGenocide/PressCoverage/blob/main/timesoflondon1948%20(1).jpeg)
