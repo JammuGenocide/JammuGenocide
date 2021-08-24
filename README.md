@@ -6,4 +6,4 @@
 
 -->
 
-A project to collect and save the data, information, testimonies and media about Muslim Jammu genocide carried out by the Dogra state in 1947 in J&K.
+A project to collect data & testimonies on Muslim Jammu genocide carried out by the Dogra state in 1947 in J&K.
