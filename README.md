@@ -16,7 +16,7 @@ A collective to gather data & testimonies on Muslim Jammu genocide carried out b
   
 `Ethnic cleansing`
 
-        The U.N Commission of experts defines ethnic cleansing as, "Rendering an area ethnically homogenous by using
+        The U.N Commission of experts defines ethnic cleansing as, "Rendering an area ethnically homogenous
         by using force or intimidation to remove from a given area person of another ethnic group or religious group.
     
  
