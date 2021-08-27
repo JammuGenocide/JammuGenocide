@@ -25,7 +25,8 @@ Hari Singh wanted the Muslims of Jammu exterminated, he saw it to be the final s
 
 During the genocide, Dogra ruler Hari Singh wanted to completely exterminate Muslims, but he also sponsored ethnic cleansing in Jammu.
 
-    The Mass murders in Jammu between Oct-Nov 1947 were calculated, planned and targeted, with intent to destroy the Muslim population.
+    The Mass murders in Jammu between Oct-Nov 1947 were calculated, planned and targeted, 
+    with intent to destroy the Muslim population.
    
 
 [![Twitter URL](https://img.shields.io/twitter/url/https/twitter.com/bukotsunikki.svg?style=social&label=Follow%20%40JammuGenocide)](https://twitter.com/JammuGenocide)
