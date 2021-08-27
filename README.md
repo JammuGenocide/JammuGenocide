@@ -10,8 +10,9 @@ A collective to gather data & testimonies on Muslim Jammu genocide carried out b
 
 `Genocide`
 
-    The U.N convention of 1948 defines genocide as, "Acts commited with intent to destroy,in whole or in part, 
+    The U.N convention of 1948 defines genocide as, "Acts committed with intent to destroy, in whole or in part, 
     a national, an ethnical, racial or religious group."
+
   
 `Ethnic cleansing`
 
