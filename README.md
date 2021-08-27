@@ -16,15 +16,15 @@ A collective to gather data & testimonies on Muslim Jammu genocide carried out b
   
 `Ethnic cleansing`
 
-    The U.N commision of experts define ethnic cleansing as, "Rendering an area ethnically homogenous by using
-    by using force or intimidation to remove from a given area persons of another ethnic group or religious group."
+        The U.N Commission of experts defines ethnic cleansing as, "Rendering an area ethnically homogenous by using
+        by using force or intimidation to remove from a given area person of another ethnic group or religious group.
     
  
 The events that occurred in Jammu in 1947 were a genocide as it gains its conceptual horror precisely because of the exterminated nature
 of the Holocaust. Hitler wanted the Jews exterminated, not just driven out. The same is the case in the Jammu Genocide, the Dogra ruler 
 Hari Singh wanted the Muslims of Jammu exterminated, he saw it to be the final solution of his political policy.
 
-During the genocide, Dogra ruler Hari Singh, along with wanting to completely exterminate Muslims, he also sponsored ethnic cleansing
+During the genocide, Dogra ruler Hari Singh, along with wanting to completely exterminate Muslims, also sponsored ethnic cleansing
 in Jammu.
 
     The Mass murders in Jammu between Oct-Nov 1947 were calculated, planned and targeted, 
