@@ -20,7 +20,7 @@ A collective to gather data & testimonies on Muslim Jammu genocide carried out b
     by using force or intimidation to remove from a given area persons of another ethnic group or religious group."
     
  
-The events that occurred in Jammu 1947 were a genocide as it gains its conceptual horror percicely because of the exterminated nature
+The events that occurred in Jammu in 1947 were a genocide as it gains its conceptual horror precisely because of the exterminated nature
 of the Holocaust. Hitler wanted the Jews exterminated, not just driven out. The same is the case in the Jammu Genocide, the Dogra ruler 
 Hari Singh wanted the Muslims of Jammu exterminated, he saw it to be the final solution of his political policy.
 
